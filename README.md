@@ -1,9 +1,10 @@
-﹒　 　 †　　　 `ay`__*en*__　 　　୧　 　　₊
+　　　 　　　　　　 　　　 　　　 ﹒　 　 †　　　 `ay`__*en*__　 　　୧　 　　₊
+　　　 
 
+　　　 　　　 　　　 　　　　　　 　　　 h**e** ノ *h*__**im**__  𓉸   mino*r*　
+　　　 
 
-h**e** ノ *h*__**im**__  𓉸   mino*r*
+　　　 　　　 　　　 　　　　　　 ◟　　⌓‎  　     [K‎IM SEUNGMIN‎ .](<https://karma-seungmin.carrd.co/>) 　   ᛝ　  　⋌‎
 
+　　　　 　　　 　　  　 　 <img width="360" height="300" alt="image" src="https://github.com/user-attachments/assets/f9b4969e-5648-44c6-805f-6a8171e70887" />
 
-◟　　⌓‎  　     [K‎IM SEUNGMIN‎ .](<https://karma-seungmin.carrd.co/>) 　   ᛝ　  　⋌‎
-
-<img width="1080" height="723" alt="image" src="https://github.com/user-attachments/assets/dc3302af-9bdb-41fe-b625-aefe4e37d8ce" />
